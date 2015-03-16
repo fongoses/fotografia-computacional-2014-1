@@ -1,0 +1,1 @@
+Projetos e Assignments da disciplina de Fotografia Computacional, no semestre 2014-1
